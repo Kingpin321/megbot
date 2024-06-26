@@ -1,9 +1,9 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-# IBRAHIM-ADAMS-INFO
+# KINGPIN-TECH-INFO
 
 ## Whatsapp Channel
 
-[`Tap Here open`](https://whatsapp.com/channel/0029VaZuGSxEawdxZK9CzM0Y)
+[`Tap Here open`](https://whatsapp.com/channel/0029VaNRcHSJP2199iMQ4W0l/230)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -11,7 +11,7 @@
 
 ## Email me if having any problem
 
-ibraahadams@gmail.com
+gichukisolomon12@gmail.com
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -19,7 +19,7 @@ ibraahadams@gmail.com
 
 ## Telegram
 
-[`Tap Here open`](https://t.me/Ibrahimadamstech)
+[`Tap Here open`](http://t.me/Kingpintech)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -27,7 +27,7 @@ ibraahadams@gmail.com
 
 ## Follow me on github
 
-[`Tap Here open`](https://github.com/ibrahimaitech)
+[`Tap Here open`](https://github.com/Kingpin321/KINGS-MD)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -68,13 +68,13 @@ ibraahadams@gmail.com
 
 ## Deployment site
 
-[`Tap Here open`](https://github.com/IBRAHIM-TECH-AI/DEPLOYMENT-SITE)
+[`Tap Here open`](https://github.com/Kingpin321/DEPLOYMENT-SITE)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 
-## Bmw md repo
+## Kings md repo
 
 [`Tap Here open`](https://github.com/ibrahimaitech/BMW-MD/tree/main)
 
@@ -82,22 +82,15 @@ ibraahadams@gmail.com
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 
-## Black panther md repo
-
-[`Tap Here open`](https://github.com/ibrahimaitech/BLACK-PANTHER-XMD)
-
-
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-
 
 ## SESSION SITE
 
-[Tap Here open](https://github.com/IBRAHIM-TECH-AI/SESSION-SITE/tree/main)
+[Tap Here open](https://github.com/Kingpin321/SESSION-SITE)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-# Made by Ibrahim Adams
+# Made by Kingpin Tech
 
 # Star ✨ the repo if you don't mind 
 
