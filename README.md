@@ -60,7 +60,7 @@ gichukisolomon12@gmail.com
 
 ## Instagram
 
-[`Tap Here open`](https://www.instagram.com/ibrahim_tech_official)
+[`Tap Here open`](https://www.instagram.com/ni_kingpin?igsh=OGQ5ZDc2ODk2ZA==)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
@@ -76,7 +76,7 @@ gichukisolomon12@gmail.com
 
 ## Kings md repo
 
-[`Tap Here open`](https://github.com/ibrahimaitech/BMW-MD/tree/main)
+[`Tap Here open`](https://github.com/Kingpin321/K-I-N-G-S-)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
