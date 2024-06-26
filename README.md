@@ -27,7 +27,7 @@ gichukisolomon12@gmail.com
 
 ## Follow me on github
 
-[`Tap Here open`](https://github.com/Kingpin321/KINGS-MD)
+[`Tap Here open`](http://github.com/Kingpin321)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
