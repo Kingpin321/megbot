@@ -3,7 +3,7 @@
 
 ## Whatsapp Channel
 
-[`Tap Here open`](https://whatsapp.com/channel/0029VaNRcHSJP2199iMQ4W0l/230)
+[`Tap Here open`](https://whatsapp.com/channel/0029Vaihcnh1iUxgTWto0Q0D)
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
